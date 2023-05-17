@@ -15,4 +15,3 @@ Deixarei abaixo opções para entrar em contato comigo :
 
 EMAIL : eliza.fabri@escola.pr.gov.br
 INSTAGRAM : Dayane041
-FACEBOOK : Eliza Dayane
